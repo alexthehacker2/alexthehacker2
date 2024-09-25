@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @alexthehacker2
+- 👀 I’m interested in hacking u 
+- 🌱 I’m currently learning hacking
+- 💞️ I’m not looking to collaborate 
+- 📫 How to reach me ..................
+- 😄 Pronouns: ...
+- ⚡ Fun fact: I like ..... u
